@@ -5,12 +5,12 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on building security for my family
+- 🔭 I’m currently working on building my family
 - 🌱 I’m currently learning ai intelligence 
 - 👯 I’m looking to collaborate on anything 
 - 🤔 I’m looking for help with easy to remember pathways
 - 💬 Ask me about ...
 - 📫 How to reach me: email 
 - 😄 Pronouns: Him
-- ⚡ Fun fact: still have a baby tooth
+- ⚡ Fun fact: I still have a baby tooth
 
