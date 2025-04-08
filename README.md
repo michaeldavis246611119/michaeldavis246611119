@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on building security for my f
+- 🔭 I’m currently working on building security for my family
 - 🌱 I’m currently learning ai intelligence 
 - 👯 I’m looking to collaborate on anything 
 - 🤔 I’m looking for help with easy to remember pathways
