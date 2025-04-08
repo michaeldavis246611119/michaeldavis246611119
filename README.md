@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: email 
 - 😄 Pronouns: Him
-- ⚡ Fun fact: still have a baby tooth
+- ⚡ Fun fact: I still have a baby tooth
 
